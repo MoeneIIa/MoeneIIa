@@ -1,7 +1,7 @@
 <img width="2048" height="154" alt="tumblr_ab928190be374755dfd6de676d7025d5_a0ff2453_2048" src="https://github.com/user-attachments/assets/b92d7316-35ee-4354-ae41-e032e2dd2a81" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\textsf{\color{#dc1468} ⋅•⋅⊰∙∘☽"Property of Wicked"☾∘∙⊱⋅•⋅ }}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\textsf{\color{#dc1468} ⋅•⋅⊰∙∘☽"Property of WCKD"☾∘∙⊱⋅•⋅ }}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\textsf{\color{#f0ab6e} ⋅•⋅⊰∙∘☽ Welcome to my Git Hub! ☾∘∙⊱⋅•⋅ }}$
 
