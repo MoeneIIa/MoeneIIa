@@ -13,7 +13,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ${\textsf{\color{#915cca} ⋅•⋅⊰∙∘☽ Basic DNI, Pro-shippers/Darkshippers, RADqueers, Endos, Zoos and maps DNI ☾∘∙⊱⋅•⋅ }}$ 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ciam9ymu37mlfh9of7gpui9dv&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ciam9ymu37mlfh9of7gpui9dv&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 <img width="2048" height="154" alt="tumblr_424963306c438c10b4e4e69cfc40410d_237f626c_2048" src="https://github.com/user-attachments/assets/3e1c9fbc-8bd5-442b-82cf-531e2dda48f0" />
