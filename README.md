@@ -5,7 +5,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\textsf{\color{#f0ab6e} ⋅•⋅⊰∙∘☽ Please dont copy my Ponys :c ! ☾∘∙⊱⋅•⋅ }}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ${\textsf{\color{#eeff83} ⋅•⋅⊰∙∘☽ Your Local Inumimi ☾∘∙⊱⋅•⋅ }}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ${\textsf{\color{#eeff83} ⋅•⋅⊰∙∘☽ Local EDM enthusiast ☾∘∙⊱⋅•⋅ }}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\textsf{\color{#78ffbd} ⋅•⋅⊰∙∘☽ Sign My Atabook! ☾∘∙⊱⋅•⋅ }}$ 
 
