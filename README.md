@@ -1,5 +1,6 @@
 <img width="300" height="278" alt="that thing" src="https://github.com/user-attachments/assets/da40769b-a083-40a9-b422-c757863e20bd" />
-<img width="369" height="270" alt="thing 2" src="https://github.com/user-attachments/assets/ef602765-db3b-41cc-adc6-e43e5212085c" />
+<img width="318" height="243" alt="mr thing" src="https://github.com/user-attachments/assets/bbef627c-a89b-43ba-aa47-5124717d8821" />
+
 My new best friend :3 http s://github.com/DanteKur
 
 
