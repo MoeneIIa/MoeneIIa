@@ -1,6 +1,6 @@
 <img width="300" height="278" alt="that thing" src="https://github.com/user-attachments/assets/da40769b-a083-40a9-b422-c757863e20bd" />
 <img width="369" height="270" alt="thing 2" src="https://github.com/user-attachments/assets/ef602765-db3b-41cc-adc6-e43e5212085c" />
- ${\textsf{\color{#f0ab6e} My new best friend :3 http s://github.com/DanteKur }}$
+My new best friend :3 http s://github.com/DanteKur
 
 
 <img width="2048" height="154" alt="tumblr_ab928190be374755dfd6de676d7025d5_a0ff2453_2048" src="https://github.com/user-attachments/assets/b92d7316-35ee-4354-ae41-e032e2dd2a81" />
