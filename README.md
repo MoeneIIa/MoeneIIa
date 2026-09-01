@@ -1,3 +1,4 @@
+<img width="531" height="181" alt="dumbass signed my book and gave me his ip" src="https://github.com/user-attachments/assets/7faa8ad9-14d4-4546-8951-1d83e843e393" />
 <img width="300" height="278" alt="that thing" src="https://github.com/user-attachments/assets/da40769b-a083-40a9-b422-c757863e20bd" />
 <img width="318" height="243" alt="mr thing" src="https://github.com/user-attachments/assets/bbef627c-a89b-43ba-aa47-5124717d8821" />
 
