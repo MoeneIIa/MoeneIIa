@@ -2,7 +2,7 @@
 <img width="300" height="278" alt="that thing" src="https://github.com/user-attachments/assets/da40769b-a083-40a9-b422-c757863e20bd" />
 <img width="318" height="243" alt="mr thing" src="https://github.com/user-attachments/assets/bbef627c-a89b-43ba-aa47-5124717d8821" />
 
-My new best friend :3 http s://github.com/DanteKur
+My new best friend :3 http s://github.com/DanteKur. if you continue to harass me and tell me to keys, i will post the multiple socials that i found of yours
 
 
 <img width="2048" height="154" alt="tumblr_ab928190be374755dfd6de676d7025d5_a0ff2453_2048" src="https://github.com/user-attachments/assets/b92d7316-35ee-4354-ae41-e032e2dd2a81" />
