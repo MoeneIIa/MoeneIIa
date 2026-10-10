@@ -12,7 +12,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ${\textsf{\color{#59dcf8} ⋅•⋅⊰∙∘☽ C+H anytimes!! ☾∘∙⊱⋅•⋅ }}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\textsf{\color{#915cca} ⋅•⋅⊰∙∘☽ 15 or under, Proshippers/Darkshippers, RADqueers, Endos, Zoos, maps and problematic dsmp members supporters DNI ☾∘∙⊱⋅•⋅ }}$ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\textsf{\color{#915cca} ⋅•⋅⊰∙∘☽ 15 or under, Proshippers/Darkshippers, RADqueers, Endos, Zoos, maps and problematic dsmp members supporters DNI ☾∘∙⊱⋅•⋅ }}$ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ciam9ymu37mlfh9of7gpui9dv&cover_image=true&theme=spotify-embed&show_offline=false&background_color=181616&interchange=false&profanity=false&hide_remaster=false&bar_color=a80032&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 ㅤ ${\textsf{\color{#dc1468} ⋅•⋅⊰∙∘☽ If im listening to sombody problematic, Please dont just block me and Inform me of their actions! Please and thank you ☾∘∙⊱⋅•⋅ }}$
